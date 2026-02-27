@@ -1,6 +1,6 @@
 👋Hi, I'm Lucas McGrother
 
-🧑‍💼Bus. Admin. Major and IS Minor @ UNCG
+👀Interested in business strategy, analytics, and technology-driven problem solving
 
 🌱Currently working on an accessability-focused project
 
