@@ -2,7 +2,7 @@
 
 👀Interested in business strategy, analytics, and technology-driven problem solving
 
-🌱Currently working on an accessability-focused project
+🌱Currently working on an accessibility-focused project
 
 😄Pronouns: He/Him/His
 
